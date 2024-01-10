@@ -1,0 +1,1 @@
+learn kaggle follow to https://goodday-lab.tistory.com/4
